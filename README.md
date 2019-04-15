@@ -1,1 +1,0 @@
-# repositiorio-devpleno-Galindo
